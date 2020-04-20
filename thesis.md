@@ -1,3 +1,3 @@
 # My great thesis
 
-Author:  Katarina Schubert
+Author:  Katarina Phalange Schubert
